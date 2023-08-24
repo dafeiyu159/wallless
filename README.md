@@ -8,7 +8,7 @@ WallLess，原无界VPN（与轮子撞车而改名），又称WallLess加速器�
 
 ## wallless机场优惠码
 
-端午节9折优惠：**duanwuankang** 数量有限用完为止
+输入优惠码 rnmxiaoriben 即可获得9折优惠
 
 ## 优势
 
