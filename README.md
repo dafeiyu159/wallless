@@ -1,6 +1,6 @@
 # wallless机场最新地址
 
-最新地址：[portal.wl-site5.com](https://portal.wl-site5.com/#/register?code=EhnwhvJe)
+最新地址：[wlsite7.com](https://www.wlsite7.com/#/register?code=EhnwhvJe)
 
 ## 简介
 
