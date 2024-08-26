@@ -2,6 +2,8 @@
 
 最新地址：[wlsite8.com](https://www.wlsite9.com/#/register?code=EhnwhvJe)
 
+> 疑似跑路，关注中
+
 ## wallless简介
 
 WallLess，原无界VPN（与轮子撞车而改名），又称WallLess加速器，是一家持续运营超过3年的中高端SS/V2Ray机场，拥有丰富的机场线路优化经验和技术实力。
